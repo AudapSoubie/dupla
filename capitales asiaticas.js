@@ -1,0 +1,3 @@
+Kabul
+Erevan
+Daca
